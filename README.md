@@ -1,0 +1,2 @@
+# Cheats
+cheats all games
